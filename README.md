@@ -1,0 +1,1 @@
+# Pensamento-1A-Maria-Helena-22
